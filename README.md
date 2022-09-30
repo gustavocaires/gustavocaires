@@ -1,4 +1,4 @@
-### Me chamo Gustavo Caires tenho 22 anos e esse é meu perfil no github 😄
+### Me chamo Gustavo Caires e esse é meu perfil no github 😄
 
 
 
